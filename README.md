@@ -4,5 +4,4 @@
 
 <br>
 
-<p align="Center">
-[prnspage](https://pronouns.cc/@2009HauntedMall)
+[prnspage](https://pronouns.cc/@2009HauntedMall) / Ata 
