@@ -3,7 +3,5 @@
 </p>
 
 <br>
-<p align="Center">
-  
-[prnspage](https://pronouns.cc/@2009HauntedMall) / Ata 
-</p>
+
+  [prnspage](https://pronouns.cc/@2009HauntedMall) / Ata <p align="Center">
