@@ -3,5 +3,5 @@
 </p>
 
 <p align="Center">
-Prnspage/Ata here
+[Visit GitHub](https://pronouns.cc/@2009HauntedMall)/Ata here
 </p>
